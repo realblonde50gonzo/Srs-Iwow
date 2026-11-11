@@ -207,4 +207,4 @@ SRS iWOW is provided as a complete free version, with all features and updates i
 Elevate your audio experience today by downloading SRS iWOW for **free**! Enjoy crystal-clear sound quality with all features included.
 
 ---
-**Last updated:** 2026-11-11 09:03:48 UTC
+**Last updated:** 2026-11-11 17:47:38 UTC
